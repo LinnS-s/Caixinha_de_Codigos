@@ -10,7 +10,7 @@ Sinta se a vontade para buscar soluções, sugerir edições, estarei de braços
 
 
 
-## Não há muito ainda, mas aqui um dia será uma grande arvore para pessoas que também estão começando poss pegar um pouco dessa sombra!!
+## Não há muito ainda, mas aqui um dia será uma grande arvore para pessoas que também estão começando possa pegar um pouco dessa sombra!!
 
 Let´s Code !! :space_invader:
 
